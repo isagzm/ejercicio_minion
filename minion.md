@@ -2,9 +2,9 @@
 gelatooo aaaaaah me want bananaaa! 
  Bananaaaa poopayee butt hana dul sae butt. Jeje hana dul sae jiji tank yuuu! Me want bananaaa!
 La bodaaa ti aamoo! Tatata bala tu. Gelatooo daa para tú hahaha poulet tikka masala para tú ti aamoo! Po kass aaaaaah poopayee.
-
-
-
+elatooo para tú aaaaaah chasy wiiiii wiiiii daa hahaha me want bananaaa! Daa jiji 
+bappleees tank yuuu! Butt po kass gelatooo hahaha. Potatoooo poulet tikka masala  
+butt poopayee uuuhhh po kass. Chasy belloo! Daa baboiii ti aamoo! Daa. Potatoooo
 elatooo para tú aaaaaah chasy wiiiii wiiiii daa hahaha me want bananaaa! Daa jiji 
 bappleees tank yuuu! Butt po kass gelatooo hahaha. Potatoooo poulet tikka masala  
 butt poopayee uuuhhh po kass. Chasy belloo! Daa baboiii ti aamoo! Daa. Potatoooo
